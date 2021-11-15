@@ -1,4 +1,4 @@
-![Kolkata](kolkata_Final.jpeg)
+![Kolkata](kolkata_Final.jpg)
 
 
 
