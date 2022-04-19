@@ -17,7 +17,7 @@
 
 - 📫 Feel free to reach me at **rajbanerjee978@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/raj-banerjee-resume](https://bit.ly/raj-banerjee-resume)
+- 📄 Know about my experiences [cutt.ly/raj-banerjee-resume-1](https://cutt.ly/raj-banerjee-resume-1)
 
 - ⚡ Fun fact **Though my friends say I am funny.**
 
